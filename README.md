@@ -1,0 +1,3 @@
+# Pootis-Spencer-Ph.-D
+Hi I'm Pootis Spencer Ph. D on Steam, I play TF2, Unturned, Half-Life 2 Episode One, Portal 2, and Left 4 Dead 2
+I had a phone that had steam on it, and it broke so Im working to get a new phone, no, Im not a 5 year old, Im 17...
